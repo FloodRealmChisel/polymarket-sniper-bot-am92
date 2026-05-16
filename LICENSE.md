@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket advanced bot: machine-learning-models & gas-optimization, the #1 bot. Includes machine-learning-models and gas-optimization for a
 
 
 
